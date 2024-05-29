@@ -8,8 +8,6 @@ Meu nome e Eduardo de Souza Gonzaga
 
 •Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 
-### Você pode entrar em contato comigo 📫
+### Você pode entrar em contato comigo
 
-
-@alurastartestudante
-
+meu gmail:casteloqwww00k7@gmail.com
